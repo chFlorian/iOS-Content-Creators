@@ -9,7 +9,7 @@ By joining the community on Slack (and other future platforms) you agree to the 
 - No racism, sexism or other disrespectful behavior
 - Support others in the community
 - Be open to receive constructive criticism
-- This community does not server the purpose of promoting your content
+- This community does not serve the purpose of promoting your content
 - Business discussions in this community are to be kept confidential. This includes monetization-related advice.
 
 ## Violations
